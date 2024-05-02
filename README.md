@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about the science of economies
 - 💞️ I’m looking to collaborate on my life
 - 📫 How to reach me by my mail
-- 😄 Pronouns: nothing   
+- 😄 Pronouns: nothing    
 - ⚡ Fun fact:nothing            
 
 <!---
